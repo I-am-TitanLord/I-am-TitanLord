@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://wallpapers.com/images/high/naruto-pictures-59j4py5kpauv4mgu.webp"  />
+<img align="right" height="150" src="https://img.freepik.com/premium-photo/program-code-computer-display-magnifying-glass-close-up_182615-1900.jpg?w=2000"  />
 
 ###
 
